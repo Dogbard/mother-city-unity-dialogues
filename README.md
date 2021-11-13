@@ -1,2 +1,11 @@
-# mother-city-unity-dialogues
-Like the name says.
+# mother city unity dialogues
+
+:eyes:
+
+🌱
+
+👣
+
+:heart:
+
+More to follow
